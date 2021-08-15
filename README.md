@@ -1,0 +1,17 @@
+Description
+
+This is chocolate cake recipe. With a super moist crumb and fudgy, yet light texture. Top with chocolate buttercream and chocolate chips for 3x the chocolate flavor. You can also prepare this chocolate layer cake as a sheet cake too. 
+
+NOTES   
+
+Make Ahead & Freezing Instructions: Prepare cake through step 4. Wrap the individual baked and cooled cake layers tightly and refrigerate for up to 2 days or freeze up to 3 months. Bring to room temperature then continue with step 5. You can prepare the chocolate buttercream 2-3 days in advance. Cover and refrigerate, then bring to room temperature before spreading onto/assembling the cake. Frosted cake freezes well, up to 3 months. Thaw overnight in the refrigerator, then bring to room temperature or serve cold.
+3 Layer Cake: You can also prepare this cake as a 3 layer cake. Divide batter between three 8-inch or 9-inch cake pans and bake for 22-25 minutes or until a toothpick inserted in the center comes out clean. This frosting will be enough for 3 layers. If desired, use the frosting recipe from my Piñata Cake if you want extra frosting.
+Cocoa Powder: Use natural cocoa powder in the cake, not dutch-process.  Since there is no leavening occurring in frosting, you can use either natural or dutch-process in the chocolate buttercream.
+Buttermilk: Buttermilk is required for this recipe. You can make your own DIY version of buttermilk if needed. Add 2 teaspoons of white vinegar or lemon juice to a liquid measuring cup. Then add enough room temperature whole milk to the same measuring cup until it reaches 1 cup. (In a pinch, lower fat or nondairy milks work for this soured milk, but the cake won’t taste as moist or rich.) Stir it around and let sit for 5 minutes. The homemade “buttermilk” will be somewhat curdled and ready to use in the recipe.
+Sour Cream Version: Lately I’ve been using a mix of sour cream and buttermilk, as well as reducing the hot coffee. Reduce the buttermilk and hot coffee to 1/2 cup (120ml) each. Add 3/4 cup (180g) of room temperature full-fat sour cream with the wet ingredients. You can see this described above, in the video tutorial, and in my dark chocolate mousse cake. That cake and this cake are both fantastically moist, but the sour cream version has a slightly sturdier crumb.
+FAQ: The sour cream version (note above) makes a sturdy enough cake that will hold under fondant.
+Amount of Cake Batter: This recipe (and the sour cream version) yields about 6 cups of batter, which is helpful if you need it for different Cake Pan Sizes & Conversions.
+Room Temperature Ingredients: All refrigerated items should be at room temperature so the batter mixes together easily and evenly. Read here for more information.
+Espresso Powder/Coffee: Espresso powder and coffee will not make the cake taste like coffee. Instead, they deepen the chocolate flavor. I highly recommend them both. You can use the same amount of instant coffee (the powder) instead of espresso powder if desired. If coffee isn’t your thing, you can leave out the espresso powder and use extra hot water or hot chai tea.
+Bundt Pan: I recommend my chocolate cream cheese bundt cake but without the cream cheese filling. Reduce buttermilk in that recipe to 1/4 cup and increase sour cream to 1 cup.
+9×13 Inch Pan: You can bake this cake in a 9×13 inch baking pan. Same oven temperature, about 35-40 minutes bake time.
